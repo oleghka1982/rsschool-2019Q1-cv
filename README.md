@@ -1,1 +1,1 @@
-# rsschool-2019Q1-cv
+[https://oleghka1982.github.io/rsschool-2019Q1-cv/cv.md] (https://github.com/oleghka1982/rsschool-2019Q1-cv/cv.md)
